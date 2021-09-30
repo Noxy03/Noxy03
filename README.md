@@ -1,0 +1,5 @@
+- 👋 Hi, i am Noxy03.
+- 👀 I’m interested in you.
+- 🌱 I’m currently learning stuff.
+- 💞️ I’m looking to collaborate on the stuff above.
+- 📫 How to reach me discord.
